@@ -15,7 +15,7 @@ Here are the best current deals you can use right now:
 
 | Discount             | Who it's for                   |    How to get it |
 | -------------------- | --------------------------- | ------------------------------- |
-| Upto 50% off           | Everyone                   | Wisit worthepenny - deal applied automatically |
+| Upto 50% off           | Everyone                   | Wisit worthepenny - deal applied automatically, no coupon required, check source |
 | 30% off on hotels       | All users                  | 30OFFNSURTWU - directly  apply promo code  |
 | 10% off on signups      | for first time booking.com users | signup on booking.com with your valid email id to unlock |
 | 8% Cashback            |  deal hunters                | Use RETAILMENOT Code to activate cashback deal |
