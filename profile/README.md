@@ -4,6 +4,8 @@ Looking to save more money on your next trip ?? whether your're planning out for
 for a business trip, Booking.com Promo codes can help you to book smarter and cheaper. In this update, we will show you 
 the laetst verified offers for booking.com, and how to use them and tips to get best deal.
 
+<h1><a href="https://www.google.com/url?q=https%3A%2F%2Fwww.dynews.net%2F2025%2F05%2Fbookingcom-promo-code-save-more-on-your.html&sa=D&sntz=1&usg=AOvVaw06ChRYqz8n1UaT4OW3jE76">👉 Click here to get Booking.com Promocode</a></h1>
+
 ![image](https://github.com/user-attachments/assets/693b060c-7cec-441e-a808-0c5cff5cdb33)
 Image source: booking.com 
 
